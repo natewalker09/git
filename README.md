@@ -1,1 +1,1 @@
-fuck that nigga nate
+peace and love
