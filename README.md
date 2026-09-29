@@ -1,3 +1,2 @@
-fuck that nigga nate
-peace and love
-fuck that nigga israel
+peace and love 
+yk what it is
